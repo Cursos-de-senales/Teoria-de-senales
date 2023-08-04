@@ -4,4 +4,6 @@ Contact information of the monitors:
 
 -Joseph Felipe Grijalva Lozano: Jgrijalva@unal.edu.co | 320 284 2522
 
+Contact information for the professor:
+
 -Cesar German Castellanos Dominguez: cgcastellanosd@unal.edu.co
